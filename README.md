@@ -2,7 +2,7 @@
 - 👀 I’m interested in not falling behind 😢
 - 🌱 I’m currently learning anything popular 😞
 - 💞️ I’m looking to collaborate on anything 🥺
-- 📫 How to reach me @megamoedev
+- 📫 How to reach me megamoedev@gmail.com
 
 - ⚡ Fun fact: I've seen (insert movie) over (larger number) times, this (insert amount of time, e.g. month, year, decade) alone. 
 
